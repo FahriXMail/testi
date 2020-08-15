@@ -1,3 +1,0 @@
-# testi
-Asy
-:v gabut
